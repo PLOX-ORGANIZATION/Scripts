@@ -27,5 +27,5 @@ Go to https://wearedevs.org/ and install JJsploit (Not a virus) (SAFE)
 WORK ANSWER AI'S
 ----------------------------------------|
 https://oddityai.com/ (4 Specially designed bots to do certain homework/schoolwork subjects.
-
+---------------------------------------------------------------|
 https://smodin.io/omni Type any question for the answer. (you get 3 answers every week) (you get 3 answers every day if you sign up for FREE)
