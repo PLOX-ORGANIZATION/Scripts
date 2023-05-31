@@ -1,4 +1,4 @@
-#Scripts and AI's to help you with school work
+# Scripts and AI's to help you with school work
 
 (This will include a free quizizz and roblox hack. If you want to pay full access to get Better hacks, join the discord.) (https://discord.gg/Z68FsQmaq4)
 
