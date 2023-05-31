@@ -7,12 +7,12 @@
 ----------------------------
 
 All quizizz answers for school! 
---------------------------------------
+--------------------------------------|
 https://quizit.online/services/quizizz/
 (type in game code to get answer key) (WORKING)
 Click Services to get plenty of school cheats!
 --------------------------------------------
-**BONUS**
+This is a **BONUS**
 
 ----------------------------------
 
@@ -20,7 +20,7 @@ Click Services to get plenty of school cheats!
 Roblox Exploits! (ANY THING) (KEYLESS)
 ----------------------------------------|
 Go to https://wearedevs.org/ and install JJsploit (Not a virus) (SAFE) 
-(SERVERS DOWN - UPDATING) **BONUS**
+(SERVERS DOWN - UPDATING) This is a **BONUS**
 
 
 
