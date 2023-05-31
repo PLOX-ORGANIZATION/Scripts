@@ -2,6 +2,9 @@
 
 (This will include a free quizizz and roblox hack. If you want to pay full access to get Better hacks, join the discord.) (https://discord.gg/Z68FsQmaq4)
 
+***Full access is 65% Off! Your saving $3.90.*** 
+  
+The current sale price is $2.10.
 
 
 ----------------------------
